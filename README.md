@@ -1,1 +1,3 @@
-# actividadGrupal
+Mer 
+Manu
+Adriel
